@@ -40,9 +40,57 @@ https://github.com/user-attachments/assets/08717c4c-3b8a-4ecd-bd88-209a8f098d57
 
 
 -----------------------------------------------------------------
-https://github.com/user-attachments/assets/9fe6e8c1-7042-42f3-adee-d650452b7fde
+https://github.com/user-attachments/assets/8af3fda6-fe4e-40f8-9519-f70688c1d1b2
 ![photo_2025-04-30_18-28-54](https://github.com/user-attachments/assets/732971eb-029e-4b92-8b64-9d3984cbf1b0)
 ![photo_2025-04-30_18-28-53](https://github.com/user-attachments/assets/8347d82b-ba21-49ec-9013-bf395f7ce62c)
+
+-----------------------------------------------------------------
+![vbvb](https://github.com/user-attachments/assets/0d636b95-6c8c-4434-b99b-121ec6e3d364)
+![yoULVmhFYKutDJJMQqmXoD](https://github.com/user-attachments/assets/9c0c03eb-a4ca-4758-aa09-c216ea2dfb07)
+
+-----------------------------------------------------------------
+
+![7188e278e7eb60c68d6c9906b1a03196763164bf](https://github.com/user-attachments/assets/4feac0df-6f2f-45b7-ad6a-8dbcadb569ae)
+![reason2](https://github.com/user-attachments/assets/070049c8-1010-4b54-9992-e7ef1e40dbd5)
+
+-----------------------------------------------------------------
+![Screenshot_1](https://github.com/user-attachments/assets/5f5b403e-164e-4dd6-96b2-bad38afd5eaf)
+![Screenshot_3](https://github.com/user-attachments/assets/227a96cd-2400-4340-9e9e-37b6a436378e)
+![Screenshot_2](https://github.com/user-attachments/assets/52cc7532-2375-46e4-a622-b2470ad0daa9)
+
+-----------------------------------------------------------------
+![x](https://github.com/user-attachments/assets/414d1518-6729-44a2-85ab-23120d55b01f)
+![download](https://github.com/user-attachments/assets/8448bf9b-8bc7-40eb-8902-7f9b3b2ddea6)
+![images](https://github.com/user-attachments/assets/cb6fc7eb-37f3-4853-baee-c9cfa60992b5)
+
+-----------------------------------------------------------------
+![images](https://github.com/user-attachments/assets/c49cfb68-8606-4573-a2b3-ea0f9e249920)
+![download](https://github.com/user-attachments/assets/b92fa224-f0f6-4ffa-a0ea-8fa999b71da8)
+![c](https://github.com/user-attachments/assets/b2bc2da8-b245-462c-b227-2bb6c75fd7b2)
+
+-----------------------------------------------------------------
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
