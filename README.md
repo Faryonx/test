@@ -81,6 +81,18 @@ https://github.com/user-attachments/assets/f3660c4c-044d-4634-ba22-da8b52e6912c
 ![Screenshot_1](https://github.com/user-attachments/assets/7114886a-14de-43e5-862d-e475b7ef48f6)
 https://github.com/user-attachments/assets/1c32b4d0-765d-49fb-a5e5-9e65a7a0728c
 
+-----------------------------------------------------------------
+<img width="1382" alt="cbcvb" src="https://github.com/user-attachments/assets/f2e55c4b-5e80-42fe-b981-de95a817f773" />
+![deposit_withdrawal_troubleshooting_for_Evm](https://github.com/user-attachments/assets/8d4e5125-6828-4174-b98e-7d099d1c8038)
+![xcv](https://github.com/user-attachments/assets/2edad8c5-900d-4fb1-8caf-9e6b475f5932)
+
+-----------------------------------------------------------------
+![admin](https://github.com/user-attachments/assets/d08eb1bc-a008-4e4d-92dd-e45b5e728622)
+![architecture](https://github.com/user-attachments/assets/36611ec5-18ec-4dda-ae71-c750d60042ed)
+![levelgold](https://github.com/user-attachments/assets/6b0cec55-b4ed-4fa2-8c9a-7584e6a45c0a)
+
+
+
 
 
 
