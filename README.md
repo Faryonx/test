@@ -69,6 +69,14 @@ https://github.com/user-attachments/assets/8af3fda6-fe4e-40f8-9519-f70688c1d1b2
 ![c](https://github.com/user-attachments/assets/b2bc2da8-b245-462c-b227-2bb6c75fd7b2)
 
 -----------------------------------------------------------------
+![A-Step-By-Step-Guide-on-How-to-Build-an-AI](https://github.com/user-attachments/assets/c6d054eb-a84b-4023-8d3e-23626daea3ac)
+![cbwe](https://github.com/user-attachments/assets/2a4ab552-dc3c-4e4b-8247-f4570af6ee0b)
+![histogram-chart](https://github.com/user-attachments/assets/72667b3e-0f32-4d70-85bd-f164c30f7c12)
+
+-----------------------------------------------------------------
+![photo_2025-04-30_19-40-14](https://github.com/user-attachments/assets/88049924-c989-4b4e-8c16-4252c719d68f)
+https://github.com/user-attachments/assets/f3660c4c-044d-4634-ba22-da8b52e6912c
+
 
 
 
