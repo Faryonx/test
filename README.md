@@ -77,6 +77,11 @@ https://github.com/user-attachments/assets/8af3fda6-fe4e-40f8-9519-f70688c1d1b2
 ![photo_2025-04-30_19-40-14](https://github.com/user-attachments/assets/88049924-c989-4b4e-8c16-4252c719d68f)
 https://github.com/user-attachments/assets/f3660c4c-044d-4634-ba22-da8b52e6912c
 
+-----------------------------------------------------------------
+![Screenshot_1](https://github.com/user-attachments/assets/7114886a-14de-43e5-862d-e475b7ef48f6)
+https://github.com/user-attachments/assets/1c32b4d0-765d-49fb-a5e5-9e65a7a0728c
+
+
 
 
 
